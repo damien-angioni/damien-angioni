@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello there 👋
 
 <!--
 **damien-angioni/damien-angioni** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
