@@ -17,7 +17,7 @@ Languages I am learning are:</br>
 
 ## I am working on:
 
-I am actually more working on the school jobs thajn my own. I am searching a work-study contract, needed to fulfill the graduation.</br>
+I am actually more working on the school jobs than my own. I am searching a work-study contract, needed to fulfill the graduation.</br>
 🙏If you have any clues, please tell me!🙏
 
 ## Contact me at:
